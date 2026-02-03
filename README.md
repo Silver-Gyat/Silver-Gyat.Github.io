@@ -1,1 +1,1 @@
-# Silver-Gyat.Github.io
+# funstudy.io
